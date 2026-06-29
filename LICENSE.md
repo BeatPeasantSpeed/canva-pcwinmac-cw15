@@ -1,4 +1,4 @@
-# 
+# Profissional Canva extensões para Mac OS | Atualizado Canva extensões para PC Windows. Com fontes variáveis e diagramação multipágina — otimizado para máximo desempenho em cada plataforma.
 
 
 
